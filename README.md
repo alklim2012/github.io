@@ -1,1 +1,1 @@
-# github.io
+# akmine.com
